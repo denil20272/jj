@@ -16,7 +16,7 @@ Ittenbari Ramen & Chahan Restaurant  ㄌ拉麵
 六本木之丘看夜景
 
 澀谷十字路口
-澀谷109購物中心
+澀谷109購物中心  Shibuya 109
 涉谷附近有表參道
 
 原宿（Harajuku）：探索時尚潮流，特別是在竹下通（Takeshita Street），還有獨特的咖啡廳和商店。
