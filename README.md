@@ -8,5 +8,5 @@
 和食.涮涮鍋 赤坂 うまや
 Sushisho Saitō
 
-Ittenbari Ramen & Chahan Restaurant  ㄌ
+Ittenbari Ramen & Chahan Restaurant  ㄌ拉麵
 赤坂Sacas  哈利波特劇場
