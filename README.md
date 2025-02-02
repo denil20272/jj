@@ -1,4 +1,6 @@
 赤坂見附站  3 Chome-1-6 Akasaka, Minato City, Tokyo 107-0052日本
+藍瓶咖啡
+INODA咖啡
 Itamae Sushi Hanare     ㄕ
 吉池 赤坂店
 日式烤肉 肉源
